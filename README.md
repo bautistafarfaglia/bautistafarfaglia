@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Dios
 - 📫 How to reach me mi mail
 - 😈 I´m good in calcular derivadas🥂😈
-
+- 🐂 (it doesen´t need an explanation)
 <!---
 bautistafarfaglia/bautistafarfaglia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
